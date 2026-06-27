@@ -1,1 +1,0 @@
-# MAROSTORE
